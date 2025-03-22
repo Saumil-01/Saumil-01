@@ -6,7 +6,7 @@
  
 - 💞️ I’m looking to collaborate on ReactJs projects to enhance and expand my skills.
  
-- 📫 How to reach me saumilrdhimmar1110@gmail.com
+- 📫 How to reach me saumild.work@gmail.com
  
 - 😄 Pronouns: he/him
  
